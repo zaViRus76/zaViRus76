@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zaViRus76
-- 👀 I’m interested in making nad coding
+- 👀 I’m interested in making,3d printing and coding for projects
 - 🌱 I’m currently learning to google code fragments!
 
 
